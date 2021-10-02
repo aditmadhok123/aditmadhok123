@@ -1,3 +1,7 @@
+![5643241](https://user-images.githubusercontent.com/72328911/135709134-977cd5bf-cd95-4bd2-9630-60f1a3897665.jpg)
+
+
+
 - 👋 Hi, I’m @aditmadhok123
 - 👀 I’m interested in Machine Learning, Artificial Intelligence, Computer Security, 3d modalling, programming languages
 - 🌱 I’m currently learning Python, Linux.
