@@ -1,4 +1,4 @@
-![5643241](https://user-images.githubusercontent.com/72328911/135709196-b92cad0c-d26f-4c9f-b986-126c4aa8e544.jpg)
+![cropped](https://user-images.githubusercontent.com/72328911/135709497-b861b06a-aa7b-4c43-b1f5-60370bc50cf8.jpg)
 
 
 - 👋 Hi, I’m @aditmadhok123
